@@ -1,0 +1,1 @@
+# Alphabetical-list-of-block-names-in-Minecraft-up-to-version-1.17
